@@ -1,1 +1,3 @@
-# speaking-truth-to-power
+# *Speaking Truth to Power: A Profound Journey Through Scripture and Social Justice*
+## *In an age where voices clamor for attention, and spiritual discourse often risks becoming diluted by trends and superficiality, Speaking Truth to Power: An Anthology of Sermons by William Guthrie stands as a towering testament to the enduring power of prophetic preaching. This remarkable collection—spanning 60 sermons divided into two distinct sections: Old Testament Texts and New Testament Texts—offers readers not only a deep dive into Scripture but also a bold invitation to confront injustice, uphold moral courage, and live with unwavering integrity in the face of societal and spiritual challenges.* [More details…](https://spiritualkhazaana.com/speaking-truth-to-power-scripture-justice/)
+## #SpeakingTruthToPower #WilliamGuthrie #SermonAnthology #ChristianCourage #BiblicalWisdom #FaithAndJustice #SpiritualLeadership #TruthAndLove
